@@ -1,0 +1,9 @@
+-Boil the pasta in salted water 
+-Add a little bit of oil in the water 
+-Let it boil for 8-12 mins
+-Add your homemade sauce or store bought sauce in a pan 
+-Add your vegetables in the sauce and let it cook 
+-Add the pasta in the sauce
+-Let it mix with the sauce for 1 min
+-Add finishing touches like parsley or cheese
+-Enjoy!
